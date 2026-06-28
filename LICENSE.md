@@ -1,4 +1,4 @@
-# 
+# VIP bot السكالبينج امتدادات for Mac OS | نخبة bot السكالبينج امتدادات for PC Windows. Featuring استراتيجية العودة إلى المتوسط and مجموعات السيولة DEX — optimized for maximum performance.
 
 
 
